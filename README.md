@@ -1,8 +1,12 @@
 - 👋 Hi, I’m @Zephyr1369
+- #️⃣ 1369 is 37² and my favorite number
 - 👀 I’m interested in most things.
 - 🌱 I’m currently learning how to navigate in multidimensional reality.
+- 🆗️ Do you want me to werk 4 u? I'm excited and exist irl and up to 7d (💎-shinz) or more per hapZ.
+- 🙃 ¿umop-apsdn [adh+ Jo\pue] peaJ osle n ue)
 - 💞️ I’m looking to collaborate on creative artistic and useful projects.
-- 📫 How to reach me: 
+- 🕚 My circadian rhythm is freestyle.
+- 📫 How to reach me: 🔄⬇️⬇️⤵️...
 
 Email zephyr1369@gmail.com
 
